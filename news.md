@@ -1,1 +1,1 @@
-News will appear here after updates
+OMG!! The pre- release is finally out!
